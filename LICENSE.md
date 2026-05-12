@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with nft sniper bot NFT-optimized Bot - take-profit and proxy-transactions, the #1 nft sniper bot. Includes take-profit and proxy-transactions for a
 
 
 
